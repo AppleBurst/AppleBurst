@@ -1,16 +1,73 @@
-## Hi there 👋
+<img width="3600" height="513" alt="lace design" src="https://github.com/user-attachments/assets/90469f4c-f374-492a-aa2a-e93e4d908b8c" />
 
-<!--
-**AppleBurst/AppleBurst** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="3600" height="1040" alt="tco banner" src="https://github.com/user-attachments/assets/52c32be0-b7f2-48eb-875a-ce5ed9bdcba5" />
 
-Here are some ideas to get you started:
+<img width="3600" height="513" alt="lace design copy" src="https://github.com/user-attachments/assets/6cfd0636-1980-4ecc-93e6-99de55bdfa47" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center"> </p>
+<p align="center"> </p>
+<p align="center"> </p>
+
+<h2 align="center">⋆˙⟡  apple    ✦    chosen  .𖥔 ݁ ˖</h2>
+
+<p align="center"> </p>
+<p align="center"> </p>
+<p align="center"> </p>
+
+<img width="3600" height="513" alt="lace design copy" src="https://github.com/user-attachments/assets/6cfd0636-1980-4ecc-93e6-99de55bdfa47" />
+
+<p align="center"> </p>
+<p align="center"> </p>
+<p align="center"> </p>
+
+<p align="center">⋆˙⟡  greyromantic, ace    ✦    panromantic  .𖥔 ݁ ˖</p>
+
+<p align="center"> </p>
+<p align="center"> </p>
+<p align="center"> </p>
+
+<img width="3600" height="513" alt="lace design copy" src="https://github.com/user-attachments/assets/6cfd0636-1980-4ecc-93e6-99de55bdfa47" />
+
+<p align="center"> </p>
+<p align="center"> </p>
+<p align="center"> </p>
+
+<p align="center">⋆˙⟡  mild chosen one yume  .𖥔 ݁ ˖</p>
+<p align="center">⋆˙⟡  i don't mind doubles!  .𖥔 ݁ ˖</p>
+
+<p align="center"> </p>
+<p align="center"> </p>
+<p align="center"> </p>
+
+<img width="3600" height="513" alt="lace design copy" src="https://github.com/user-attachments/assets/6cfd0636-1980-4ecc-93e6-99de55bdfa47" />
+
+<p align="center"> </p>
+<p align="center"> </p>
+<p align="center"> </p>
+
+<div align="center">
+
+
+
+| Basic DNI | Ship DNI |
+| --- | --- |
+| homophobes, transphobes, racists, bigots in general | any hollow-head ship besides chodark |
+| darkshippers | tco x any rocket corp member |
+| trump supporters | color gang x anyone outside the cg |
+| overall rude people | shadowvanilla |
+
+</div>
+
+<p align="center"> </p>
+<p align="center"> </p>
+<p align="center"> </p>
+
+<img width="3600" height="513" alt="lace design copy" src="https://github.com/user-attachments/assets/6cfd0636-1980-4ecc-93e6-99de55bdfa47" />
+
+<p align="center"> </p>
+<p align="center"> </p>
+<p align="center"> </p>
+
+<p align="center">"⋆˙⟡  you are real; you are special; remember who you are  .𖥔 ݁ ˖"</p>
+
+
