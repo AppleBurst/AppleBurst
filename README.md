@@ -58,6 +58,8 @@
 
 </div>
 
+<p align="center">⋆˙⟡  heavy dni on chovic (shippers will be blocked)  .𖥔 ݁ ˖</p>
+
 <p align="center"> </p>
 <p align="center"> </p>
 <p align="center"> </p>
