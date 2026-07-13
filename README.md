@@ -18,6 +18,9 @@
 <img width="188" height="205" alt="pony-town-__ ᴛʜᴇ ᴄʜᴏꜱᴇɴ ᴏɴᴇ  ꜰ_ᴏ  __-lie-6-frames-blinking-padded-4x" src="https://github.com/user-attachments/assets/3196bbc6-a5cb-4dcf-8032-d69a0bfa330e" />
 
 <p align="center"> </p>
+
+<p align="center">⋆˙⟡  twenty-eight chosen one cosplays and counting  .𖥔 ݁ ˖</p>
+
 <p align="center"> </p>
 
 <p align="center">
