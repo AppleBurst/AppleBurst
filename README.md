@@ -19,7 +19,7 @@
 
 <p align="center"> </p>
 
-<p align="center">⋆˙⟡  twenty-eight chosen one cosplays and counting  .𖥔 ݁ ˖</p>
+<p align="center">⋆˙⟡  thirty chosen one cosplays and counting  .𖥔 ݁ ˖</p>
 
 <p align="center"> </p>
 
