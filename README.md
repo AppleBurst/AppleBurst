@@ -20,7 +20,7 @@
 
 <p align="center"> </p>
 
-<p align="center">⋆˙⟡  thirty-two chosen one cosplays and counting  .𖥔 ݁ ˖</p>
+<p align="center">⋆˙⟡  thirty-five chosen one cosplays and counting  .𖥔 ݁ ˖</p>
 
 <p align="center"> </p>
 
@@ -70,6 +70,12 @@
 </div>
 
 <p align="center">⋆˙⟡  heavy dni on chovic (shippers will be blocked)  .𖥔 ݁ ˖</p>
+
+<p align="center"> </p>
+<p align="center"> </p>
+<p align="center"> </p>
+
+<p align="center">⋆˙⟡  13- yo's and people who headcanon all four hollow-heads as siblings, please iwec  .𖥔 ݁ ˖</p>
 
 <p align="center"> </p>
 <p align="center"> </p>
