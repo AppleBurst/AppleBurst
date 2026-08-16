@@ -44,7 +44,13 @@
 <p align="center"> </p>
 
 <p align="center">⋆˙⟡  mild chosen one yume  .𖥔 ݁ ˖</p>
-<p align="center">⋆˙⟡  i don't mind doubles!  .𖥔 ݁ ˖</p>
+<p align="center">⋆˙⟡  i don't mind doubles!!  .𖥔 ݁ ˖</p>
+
+<p align="center"> </p>
+<p align="center"> </p>
+<p align="center"> </p>
+
+<p align="center">⋆˙⟡  chodark int!!  .𖥔 ݁ ˖</p>
 
 <p align="center"> </p>
 <p align="center"> </p>
@@ -60,7 +66,7 @@
 
 
 
-| Basic DNI | Ship DNI |
+| basic dni | ship dni |
 | --- | --- |
 | homophobes, transphobes, racists, bigots in general | any hollow-head ship besides chodark |
 | darkshippers | tco x any rocket corp member |
