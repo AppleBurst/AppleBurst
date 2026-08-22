@@ -8,7 +8,7 @@
 <p align="center"> </p>
 <p align="center"> </p>
 
-<h2 align="center">⋆˙⟡  apple    ✦    chosen  .𖥔 ݁ ˖</h2>
+<h2 align="center">⋆˙⟡  apple    ✦    chosen    ✦    andre  .𖥔 ݁ ˖</h2>
 
 <p align="center"> </p>
 <p align="center"> </p>
@@ -38,6 +38,13 @@
 <p align="center"> </p>
 
 <img width="3600" height="513" alt="lace design copy" src="https://github.com/user-attachments/assets/6cfd0636-1980-4ecc-93e6-99de55bdfa47" />
+
+<p align="center"> </p>
+<p align="center"> </p>
+<p align="center"> </p>
+
+<p align="center">⋆˙⟡  questioning andrew2002 kin  .𖥔 ݁ ˖</p>
+<p align="center">⋆˙⟡  doubles iwc, still don't know my opinion on 'em yet  .𖥔 ݁ ˖</p>
 
 <p align="center"> </p>
 <p align="center"> </p>
