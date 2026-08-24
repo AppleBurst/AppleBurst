@@ -15,7 +15,8 @@
 <p align="center"> </p>
 
 <p align="center">
-<img width="188" height="205" alt="pony-town-__ ᴛʜᴇ ᴄʜᴏꜱᴇɴ ᴏɴᴇ  ꜰ_ᴏ  __-lie-6-frames-blinking-padded-4x" src="https://github.com/user-attachments/assets/3196bbc6-a5cb-4dcf-8032-d69a0bfa330e" />    ✦    <img width="206" height="252" alt="pony-town-see the blood stain your hands-sit-6-frames-blinking-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/e5a40d40-db16-4017-ab1d-e3037af42367" />
+<img width="188" height="205" alt="pony-town-__ ᴛʜᴇ ᴄʜᴏꜱᴇɴ ᴏɴᴇ  ꜰ_ᴏ  __-lie-6-frames-blinking-padded-4x" src="https://github.com/user-attachments/assets/3196bbc6-a5cb-4dcf-8032-d69a0bfa330e" />    ✦    <img width="204" height="216" alt="pony-town-andrew2002 ,, finishing hw-sit-6-frames-blinking-padded-4x" src="https://github.com/user-attachments/assets/66dbb33f-0f89-49ac-a288-9ffdac53e10d" />
+
 
 
 <p align="center"> </p>
