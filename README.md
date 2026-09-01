@@ -44,8 +44,8 @@
 <p align="center"> </p>
 <p align="center"> </p>
 
-<p align="center">⋆˙⟡  questioning andrew2002 kin  .𖥔 ݁ ˖</p>
-<p align="center">⋆˙⟡  doubles iwc, still don't know my opinion on 'em yet  .𖥔 ݁ ˖</p>
+<p align="center">⋆˙⟡  andrew2002 kin  .𖥔 ݁ ˖</p>
+<p align="center">⋆˙⟡  doubles dni  .𖥔 ݁ ˖</p>
 
 <p align="center"> </p>
 <p align="center"> </p>
