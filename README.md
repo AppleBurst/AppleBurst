@@ -15,7 +15,8 @@
 <p align="center"> </p>
 
 <p align="center">
-<img width="188" height="205" alt="pony-town-__ ᴛʜᴇ ᴄʜᴏꜱᴇɴ ᴏɴᴇ  ꜰ_ᴏ  __-lie-6-frames-blinking-padded-4x" src="https://github.com/user-attachments/assets/3196bbc6-a5cb-4dcf-8032-d69a0bfa330e" />    ✦    <img width="204" height="216" alt="pony-town-andrew2002 ,, finishing hw-sit-6-frames-blinking-padded-4x" src="https://github.com/user-attachments/assets/66dbb33f-0f89-49ac-a288-9ffdac53e10d" />
+<img width="188" height="205" alt="pony-town-__ ᴛʜᴇ ᴄʜᴏꜱᴇɴ ᴏɴᴇ  ꜰ_ᴏ  __-lie-6-frames-blinking-padded-4x" src="https://github.com/user-attachments/assets/3196bbc6-a5cb-4dcf-8032-d69a0bfa330e" />    ✦    <img width="203" height="240" alt="pony-town-andre ,, kin ,, dbls pls dni-sit-6-frames-blinking-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/dd6c9b57-02d4-4537-a20d-778926eab3d5" />
+
 
 
 
