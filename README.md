@@ -15,7 +15,8 @@
 <p align="center"> </p>
 
 <p align="center">
-<img width="188" height="205" alt="pony-town-__ ᴛʜᴇ ᴄʜᴏꜱᴇɴ ᴏɴᴇ  ꜰ_ᴏ  __-lie-6-frames-blinking-padded-4x" src="https://github.com/user-attachments/assets/3196bbc6-a5cb-4dcf-8032-d69a0bfa330e" />    ✦    <img width="203" height="240" alt="pony-town-andre ,, kin ,, dbls pls dni-sit-6-frames-blinking-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/dd6c9b57-02d4-4537-a20d-778926eab3d5" />
+<img width="188" height="205" alt="pony-town-__ ᴛʜᴇ ᴄʜᴏꜱᴇɴ ᴏɴᴇ  ꜰ_ᴏ  __-lie-6-frames-blinking-padded-4x" src="https://github.com/user-attachments/assets/3196bbc6-a5cb-4dcf-8032-d69a0bfa330e" />    ✦    <img width="182" height="240" alt="pony-town-rebooting soon as i am able !-sit-6-frames-blinking-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/b1924c0f-b4ac-4ab1-8262-afb23484f7b8" />
+
 
 
 
@@ -105,4 +106,9 @@
 
 <p align="center">"⋆˙⟡  you are real; you are special; remember who you are  .𖥔 ݁ ˖"</p>
 
+<p align="center"> </p>
+<p align="center"> </p>
+<p align="center"> </p>
 
+<p align="center">
+<img width="507" height="60" alt="incriminating evidence" src="https://github.com/user-attachments/assets/232d2757-2b37-4cbf-99fd-bbb041a5a016" />
