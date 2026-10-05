@@ -82,7 +82,7 @@
 | darkshippers | tco x any rocket corp member |
 | trump supporters | color gang x anyone outside the cg |
 | overall rude people | shadowvanilla |
-| ,,, | collandre/p116 |
+| people who can't do the bare minimum and respect others' boundaries / dni | collandre/p116 |
 
 </div>
 
